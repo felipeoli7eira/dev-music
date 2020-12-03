@@ -25,3 +25,17 @@
 - [The Sin and the Sentence](https://music.youtube.com/watch?v=RAoKcM54Q1Y&feature=share)
 
 - [Prevailer - Diseased Frames (OFFICIAL MUSIC VIDEO)](https://music.youtube.com/watch?v=VG88PsfT9Fg&feature=share)
+
+- [Heroes Of Our Time](https://music.youtube.com/watch?v=wFhG-yR5sW4&feature=share)
+
+- [Ground Culture](https://music.youtube.com/watch?v=BrePTa6RX90&feature=share)]
+
+- [Parallels](https://music.youtube.com/watch?v=nLd6h5td8G4&feature=share)
+
+- [PHINEHAS "My Horses Are Many" Official Music Video](https://music.youtube.com/watch?v=SN4z_-R7poE&feature=share)
+
+- [Endseekers](https://music.youtube.com/watch?v=OE6rrDEnm4c&feature=share)
+
+- [Phinehas "I Am The Lion" Official Music Video "Red Epic"](https://music.youtube.com/watch?v=1QAhubCrbBk&feature=share)
+
+- [Dark Days](https://music.youtube.com/watch?v=_7lpftvYDMA&feature=share)

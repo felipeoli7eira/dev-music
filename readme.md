@@ -39,3 +39,33 @@
 - [Phinehas "I Am The Lion" Official Music Video "Red Epic"](https://music.youtube.com/watch?v=1QAhubCrbBk&feature=share)
 
 - [Dark Days](https://music.youtube.com/watch?v=_7lpftvYDMA&feature=share)
+
+<hr>
+
+https://music.youtube.com/watch?v=1XNMLPdbtfU&feature=share
+
+https://music.youtube.com/watch?v=LspRvkM9z9k&feature=share
+
+https://music.youtube.com/watch?v=XMYnCveAu8k&feature=share
+
+https://music.youtube.com/watch?v=NTjHztdiOe8&feature=share
+
+https://music.youtube.com/watch?v=08SWNL0e5Z4&feature=share
+
+https://music.youtube.com/watch?v=-fahjtLjVfk&feature=share
+
+https://music.youtube.com/watch?v=-fahjtLjVfk&feature=share
+
+https://music.youtube.com/watch?v=q5LE7RoDLZY&feature=share
+
+https://music.youtube.com/watch?v=Y4OJzu97kEw&feature=share
+
+https://music.youtube.com/watch?v=4NYEyKyO-0c&feature=share
+
+https://music.youtube.com/watch?v=CbVJ2m6Xyw8&feature=share
+
+https://music.youtube.com/watch?v=v10v0epsPO8&feature=share
+
+https://music.youtube.com/playlist?list=OLAK5uy_kN3tFAl3ocwUJuWpwpFC2e-jPmMFzNiO8
+
+https://music.youtube.com/watch?v=am7BlaO08x0&feature=share
